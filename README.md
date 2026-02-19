@@ -1,1 +1,0 @@
-# supreem-pathak-hero
